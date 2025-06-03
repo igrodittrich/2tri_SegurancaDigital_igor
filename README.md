@@ -2,4 +2,6 @@
 Trabalho de segurança digital do 2do trimestre
 
 
-Gerador de senhas
+G̶e̶r̶a̶d̶o̶r̶ ̶d̶e̶ ̶s̶e̶n̶h̶a̶s̶
+
+Aliens do ben 10
